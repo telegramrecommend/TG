@@ -11,7 +11,7 @@
 ❗️❗️❗️请自行辨别真假管好自己的钱包，谨防诈骗！！！谨防诈骗！！!谨防诈骗！!！❗️❗️❗️
 
 ------------
-telegram汉化中文包[点击配置](https://t.me/setlanguage/zh-hans-beta)
+telegram汉化中文包，点击即可配置[[https://t.me/setlanguage/zh-hans-beta](https://t.me/setlanguage/zh-hans-beta)
 
 联系：[@tgyl9527bot](https://t.me/tgyl9527bot)
 
