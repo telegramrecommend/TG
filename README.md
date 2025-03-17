@@ -1,102 +1,44 @@
 <!--
  * @Description:
- * @telegram: @tghzsx_bot
+ * @telegram: @tgyl9527bot
 -->
 ## 声明
-<div align="center">
-【电报推荐】10000+ 优质Telegram群组、Telegram频道推荐、频道和机器人，精心筛选，让您轻松玩转Telegram。
 
-❗️❗️❗️本文内容严禁在中国大陆使用，一切违法后果请自行承担❗️❗️❗️
+【电报推荐】9999+ 优质Telegram群组、Telegram频道推荐、频道和机器人，精心筛选，让您轻松玩转Telegram。
+
+❗️❗️❗️本文内容，一切违法后果请自行承担❗️❗️❗️
 
 ❗️❗️❗️所有频道群组采集自网络，真实性未知,侵权请联系删除❗️❗❗️️
 
-❗️❗️❗️存在️广告内容，请自行辨别真假管好自己的钱包，出问题本站概不负责❗️❗️❗️
+❗️❗️❗️请自行辨别真假管好自己的钱包，谨防诈骗！！！谨防诈骗！！!谨防诈骗！!！❗️❗️❗️
+
+------------
+
+联系：[@tgyl9527bot](https://t.me/tgyl9527bot)
 
 
-<img src="https://i.imgur.com/ywjcaE6.png" alt="USDT">
-电报中文昵称也就是汉字❗️请点击以下机器人免费领取USDT❗️<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
-(泰达币Tether),数量有限先到先得
+#### 资源搜索机器人 (软件|视频|热点新闻|课程|音乐)
 
-商务合作：[@tghzsx_bot](https://t.me/tghzsx_bot)
-
-</div>
-
-<!-- BEGIN_REPLACE_SECTION -->
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_7202424896) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+boSRNynHORVjMmNh)    | [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_7202424896) |
+| [![soso搜索机器人](https://imgur.com/nDYYgDt.png)soso搜索机器人](https://t.me/soso?start=a_7621030165) | [![jiso搜索机器人](https://imgur.com/CDEXRYd.png) jiso搜索机器人](https://t.me/jiso?start=a_7621030165)    | [![jisou搜索机器人](https://imgur.com/uBvuAdr.png)jisou搜索机器人](https://t.me/jisou2bot?start=a_7621030165) |
 |:---:|:---:|:---:|
-|[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_7202424896) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|
-| [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupian20w)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sese20w) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwang007)|
-| [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/电报资源搜索](https://i.imgur.com/xff6d05.png)<br>电报稀缺资源大全中文搜索](https://t.me/sousuohp)|  [![彩虹群发器/彩虹群发/彩虹群发器破解版](https://i.imgur.com/6a8Zz9h.png)<br>彩虹群发器破解版](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)  |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
-<!-- END_REPLACE_SECTION -->
-</table>
+|[![smss搜索机器人](https://imgur.com/sJFVApG.png)smss搜索机器人](https://t.me/jisou2bot?start=a_7202424896) |  [![kuaiso搜索机器人](https://imgur.com/iyIXhi2.png)kuaiso搜索机器人](https://tgdh.github.io) |[![@aiso搜索机器人](https://imgur.com/Wdn3vwo.png)@@aiso搜索机器人](https://t.me/ikuaisobot?start=7352210715)|
 
-| **导航名称**       | **链接**                                           |
+
+
+
+### 资源搜索交流群
+
+|||
 |-----------------|---------------------------------------------------|
-| **🛫机场VPN导航站🛫** | [https://jichangvpn.github.io](https://jichangvpn.github.io) |
-| **🎯Telegram频道群组导航站🎯** | [https://tgdh.github.io](https://tgdh.github.io)或[https://www.tg10000.com](https://www.tg10000.com) |
-| **🎯AI导航站🎯** | [https://ai-navs.github.io](https://ai-navs.github.io) |
-| **🌈彩虹群发器🌈**         | [https://t.me/autocaihongbot](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)(机器人自助购买) |
-| **🔥全国找妹子🔥**  | [https://t.me/+bJkN6Cz7WIQ5YjQ9](https://t.me/+bJkN6Cz7WIQ5YjQ9) |
-| **🔥全国找妹纸🔥**  | [https://t.me/+yjr6MItkuRJkMDFl](https://t.me/+yjr6MItkuRJkMDFl) |
+|**🔥热门导航🔥** | [https://t.me/pingdaotj](https://t.me/pingdaotj) |
+|**TG全局搜索资源/吃瓜**| [https://t.me/sosobo2](https://t.me/sosobo2)|
+| **电报中文搜索** | [https://t.me/tgxqzy](https://t.me/tgxqzy) |
+| **资源搜索交流**   | [https://t.me/hlsousuo](https://t.me/hlsousuo) |
+| **TG全能搜群资源大群**  | [https://t.me/zysoso](https://t.me/zysoso) |
 
-### 推荐
 
-| 频道名称             | 链接                                       | 描述                        |
-|--------------------|--------------------------------------------|---------------------------------|
-| 🔥 频道导航/群组导航 | [https://t.me/tgpddh](https://t.me/tgpddh)   | Telegram频道和群组导航合集      |
-| 🚀 每日免费节点       | [https://t.me/freevpntg](https://t.me/freevpntg) | 每日免费提供高速的VPN节点         |
-| 🔥 电报中文包       | [https://t.me/go2cn](https://t.me/go2cn) | 电报使用人数最多的中文包         |
-| 🔥 修女频道搬运        | [https://t.me/xiunvbanyun](https://t.me/xiunvbanyun) |   [@freexnby_bot](https://t.me/freexnby_bot)破解自动搬运别人频道到自己频道   |
-| 🔥 TG全能搜索        | [https://t.me/sesou20w](https://t.me/sesou20w) | 支持多种资源的强大搜索引擎      |
-| 🎥 电影搜索Pron      | [https://t.me/sepiansousuo](https://t.me/sepiansousuo) | 支持电影、资源的搜索功能      |
-| 🔥 极搜20万人搜索群   | [https://t.me/jisou200000](https://t.me/jisou200000) | 热门搜索群，涵盖多种资源       |
-| 🔥 资源搜索          | [https://t.me/resource4](https://t.me/resource4) | 提供多类型的资源搜索功能      |
-| 🔥 稀缺资源搜索      | [https://t.me/sosobo2](https://t.me/sosobo2) | 提供稀缺资源的专门搜索        |
-| 🔥 神马搜索         | [https://t.me/smss](https://t.me/smss?start=spread_7202424896)       | 提供快速资源搜索服务          |
-| 🔥 aiso中文搜索     | [https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)       | 中文资源搜索引擎             |
-| 🔥 哆啦A梦软件App| [https://t.me/dlamapp](https://t.me/dlamapp) | 各种软件、App和VPN破解资源    |
-| 🔥 NSFW| [https://github.com/telegrampron/telegram-nsfw](https://github.com/telegrampron/telegram-nsfw) | 电报极品频道，懂的都懂    |
-| 🔥 色瓜中心| [https://t.me/seguazhongxin](https://t.me/seguazhongxin) | 分享全网第一热瓜|
-| 🔥 全网直播回放      | [https://t.me/luzhiob](https://t.me/luzhiob)   | 直播回放资源，涵盖抖音、斗鱼等  |
-| 🎥 阿里云盘4K高清资源  | [https://t.me/alidriver4k](https://t.me/alidriver4k) | 阿里云盘的4K高清资源分享      |
-| 🔥 国内大流量卡       | [https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024) | 29元200G大流量卡信息         |
-| 🔥 奈飞小铺         | [https://ihezu.fans](https://ihezu.fans)     | 提供Spotify、网飞等平台的拼车服务 |
-| 🔥 环球巴士         | [https://universalbus.cn](https://universalbus.cn) | 全球一站式合租平台，支持多平台  |
-| 🔥 账号星球         | [https://www.accountboy.com](https://www.accountboy.com/?source=tggroup) | 苹果全球id，GPT/奈飞合租，海外社媒账号/邮箱  |
-| 🔞 推特女菩萨      | [https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)  |  骗子    |
-| 🔞 女神聚集地       | [https://t.me/+d1li_2Da7JkyYmE0](https://t.me/+d1li_2Da7JkyYmE0) |    骗子  |
-| 🔞 不良少女         | [https://t.me/+DbLZRxZPuskyM2E0](https://t.me/+DbLZRxZPuskyM2E0) |      骗子|
-| 🔞 女大学生         | [https://t.me/+bP2C6wrFOjxkMTVk](https://t.me/+bP2C6wrFOjxkMTVk) |      骗子|
-| 🔞 全职宝妈         | [https://t.me/+AKqlE82RBJk0NmJh](https://t.me/+AKqlE82RBJk0NmJh) |      骗子|
-| 🔞 性瘾少女         | [https://t.me/+o5a3hQeuFg01MGRl](https://t.me/+o5a3hQeuFg01MGRl) |      骗子|
 
-### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
-| 项目                                       | 说明                                              | 价格            |
-| ------------------------------------------ | ------------------------------------------------- | --------------- |
-| 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](https://t.me/dysyg)          | 50U             |
-| 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](https://t.me/banyunpindao) | 10U   |
-| 自动转发频道机器人(涨粉神器)                          | 自动监听搬运别人频道内容,提供源码及搭建服务[@banyunpindao](https://t.me/banyunpindao) | 100U            |
-| 自动转发频道机器人（文末广告+关键字替换+过滤）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
-| 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 软件下载地址:[网盘地址](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw),使用教程:[视频教程](https://www.youtube.com/watch?v=t09ZIz3k-i4),自助购买:[@autocaihongbot](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi) | ¥200             |
-| 搜索机器人源码                 | 有需要自行联系[@tghzsx_bot](https://t.me/tghzsx_bot)进行搜索机器人测试体验 | 10000U             |
-| 电报机器人开发                 | 有需要自行联系[@tghzsx_bot](https://t.me/tghzsx_bot) | 根据功能难易度报价            |
-<div style="display: flex; justify-content: space-between;">
-  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹群发器破解版免费" style="width: 30%;"/>
-  <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹群发器破解版" style="width: 30%;"/>
-  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹群发电报神器" style="width: 30%;"/>
-</div>
-
-### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
-| 名字     | 链接 | 功能描述     |
-| :---        |    :----:   |          :--- |
-| 电报会员自助开通机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通Telegram电报会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
-| 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人 |
-
-## +86 无法接收验证码问题
-
-视频参考：https://www.youtube.com/watch?v=ErfanyyANUI
-
-### 1. 开通国际漫游
+### 开通国际漫游
 
 | 运营商 | 短信内容 | 发送号码 |
 |--------|----------|----------|
@@ -207,14 +149,15 @@
 #### TG中文群组索引机器人bot
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-|SOSO|[@soso](https://t.me/sosoo?start=a_6294881820)|群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
-| 极搜JiSo | [@jiso](https://t.me/jiso?start=a_6294881820)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
-| 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_6294881820)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
-| ikuaiso     | [@ikuaisobot](https://t.me/ikuaisobot?start=7352210715)  | 帮你找到有趣的群、频道、视频、音乐、电影、新闻！ |
-| aiso搜索机器人     | [@aiso](https://t.me/aiso?start=telegram_6294881820)  | 查找群组、频道、影视、音乐或机器人。  |
-| 神马索引机器人      | [@smss](https://t.me/smss?start=spread_6294881820)       | 神马索引机器人，可以通过关键词查找  |
-| 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=6294881820)        | 帮助您找到感兴趣的群组、频道和机器人！      |
-| TON索引  | [TonCnBot](https://t.me/TonCnBot?start=6294881820)       | 帮助您找到感兴趣的群组、频道和机器人！  |
+|SOSO|[@soso](https://t.me/soso?start=a_7621030165)|群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
+| 极搜JiSo | [@jiso](https://t.me/jiso?start=a_7621030165)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
+| 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_7621030165)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
+| kuaiso     | [@kuaisou1_bot](https://t.me/ikuaisobot?start=7352210715)  | 帮你找到有趣的群、频道、视频、音乐、电影、新闻！ |
+| aiso搜索机器人     | [@aiso](https://t.me/ikuaisobot?start=7352210715)  | 查找群组、频道、影视、音乐或机器人。  |
+| 神马索引机器人      | [@smss](https://t.me/smss?start=spread_7621030165)       | 神马索引机器人，可以通过关键词查找  |
+| 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=2038293832)        | 帮助您找到感兴趣的群组、频道和机器人！      |
+
+
 
 
 #### 群组抽奖机器人
